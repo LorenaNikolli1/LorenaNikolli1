@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LorenaNikolli1
+- 👀 I’m interested in business management, information systems, technology, and art. 
+- 🌱 I’m currently learning project management and programing skills. 
+- 💞️ I’m looking to collaborate on different projects. 
+- 📫 You can reach me through my email: lorenanikolli7@gmail.com 
